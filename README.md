@@ -1,5 +1,5 @@
 # 💫 About Me:
-📗 Federal University of São Paulo (UNIFESP)- São José dos Campos, Brazil<br>👩‍🎓 Bachelor's Degree in Science and Technology (2023)<br>👯 Currently studying Computer Engineering
+📗 Federal University of São Paulo (UNIFESP)- São José dos Campos, Brazil<br>👩‍🎓 Bachelor's Degree in Science and Technology (2023)<br> ⚙️ Currently studying Computer Engineering
 
 
 ## 🌐 Socials:
